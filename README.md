@@ -1,2 +1,2 @@
 # duckyland
-за дакиляндию(я только начинаю)SGDDFJGshdcbkBSDDDvbSBDJFBsdbdvhfBcvhbsJDvfuSLVSDC
+за дакиляндию(я только начинаю)
